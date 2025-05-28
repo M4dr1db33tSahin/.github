@@ -4,7 +4,7 @@ Kazandıran ve eğlendiren Bahisin adresi Madridbet!
 
 <p align="center">
   <a href="https://t.ly/madridbetguncelgiris">
-    <img src="https://private-user-images.githubusercontent.com/207055444/448005053-ec3d70dd-4735-4c9a-b4db-dc1ffa50a5b3.jpg?raw=true" alt="M4dr1db33t Güncel Giriş" />
+    <img src="https://camo.githubusercontent.com/63fec4c5eb1dd991e145346a6e9dffea4ec60a304dd130c88990f2026d1973f9/68747470733a2f2f692e6962622e636f2f796d764e6348584d2f6d6172616b6b6b686573732e6a7067" alt="M4dr1db33t Güncel Giriş" />
   </a>
 </p>
 
@@ -45,5 +45,5 @@ M4dr1db33t, lisanslı altyapısı ve gelişmiş güvenlik protokolleriyle güven
 
 > ⚠️ **Uyarı:** Bu platform yalnızca 18 yaş ve üzeri kullanıcılar içindir. Lütfen sorumlu oyun oynayın.
 
-<!-- naber -->
+<!-- META TAGS -->
 <meta name="description" content="M4DR1DB3T platformunda yeni başlayanlara özel deneme fırsatları! Hemen kayıt ol, risk almadan eğlenceye başla. Şimdi göz at!">
