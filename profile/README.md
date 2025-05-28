@@ -1,10 +1,10 @@
-# M4dr1db33t
-Kazandıran ve eğlendiren Bahisin adresi Madridbet !
-# 🎲 M4dr1db33t – Kazandıran Oyun Dünyasına Hoş Geldin!
+# M4dr1db33t  
+Kazandıran ve eğlendiren Bahisin adresi Madridbet!  
+🎲 **M4dr1db33t – Kazandıran Oyun Dünyasına Hoş Geldin!**
 
 <p align="center">
   <a href="https://t.ly/madridbetguncelgiris">
-    <img src="[https://burduryeniguncom.teimg.com/crop/1280x720/burduryenigun-com/uploads/2024/08/maskeli-besler-irak-filminin-konusu-ve-kadrosu.webp](https://private-user-images.githubusercontent.com/207055444/448005053-ec3d70dd-4735-4c9a-b4db-dc1ffa50a5b3.jpg?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NDg0MTgzODMsIm5iZiI6MTc0ODQxODA4MywicGF0aCI6Ii8yMDcwNTU0NDQvNDQ4MDA1MDUzLWVjM2Q3MGRkLTQ3MzUtNGM5YS1iNGRiLWRjMWZmYTUwYTViMy5qcGc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUwNTI4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MDUyOFQwNzQxMjNaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1hMmE2ZWYxZTAxZDhmNGRlZDQ1YzVjMjNkNWExZGUxNzU0YTMxZmIwYmI2ZjU2NTdiNzE0YmE3Njk5MWMxNTRjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.DmVJQFeaCu97UZdSbHfoi7myF95jqH1i2yx7crgyNsI)" alt="M4dr1db33t Güncel Giriş" />
+    <img src="https://private-user-images.githubusercontent.com/207055444/448005053-ec3d70dd-4735-4c9a-b4db-dc1ffa50a5b3.jpg?raw=true" alt="M4dr1db33t Güncel Giriş" />
   </a>
 </p>
 
@@ -30,7 +30,7 @@ Canlı casino, spor bahisleri ve binlerce slot oyunuyla 7/24 kesintisiz oyun key
 - 💰 Anlık yatırım bonusları  
 - 🏆 Turnuvalar ve ödüllü etkinlikler
 
-Tüm promosyonlar, güncel kampanyalar ve anında giriş için bağlantıyı ziyaret et:  
+Tüm promosyonlar, güncel kampanyalar ve anında giriş için:  
 👉 [Güncel Giriş Adresi](https://t.ly/madridbetguncelgiris)
 
 ---
@@ -44,4 +44,6 @@ M4dr1db33t, lisanslı altyapısı ve gelişmiş güvenlik protokolleriyle güven
 💬 Canlı destek paneli üzerinden anında yardım al
 
 > ⚠️ **Uyarı:** Bu platform yalnızca 18 yaş ve üzeri kullanıcılar içindir. Lütfen sorumlu oyun oynayın.
+
+<!-- naber -->
 <meta name="description" content="M4DR1DB3T platformunda yeni başlayanlara özel deneme fırsatları! Hemen kayıt ol, risk almadan eğlenceye başla. Şimdi göz at!">
